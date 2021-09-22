@@ -1,3 +1,3 @@
-All system bot by ROMAN ARZHA
-Butuh informasi? Chat me on
-Telegram : t.me/romanleearzd
+All system bot by Alyora07 <br>
+Butuh informasi? Chat me on <br>
+Telegram : t.me/alyora07
